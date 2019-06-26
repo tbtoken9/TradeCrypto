@@ -46,3 +46,7 @@ $ 5000
 Weekly Withdrawal Bonus
 
 "Weekly Income is adjusted with the Join package"
+
+MAXIMUM INCOME FOR 1 WEEK
+
+$ 30 - $ 1250
