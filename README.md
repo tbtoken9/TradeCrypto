@@ -42,3 +42,7 @@ $ 1000
 $ 2500
 
 $ 5000
+
+Weekly Withdrawal Bonus
+
+"Weekly Income is adjusted with the Join package"
