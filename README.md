@@ -20,3 +20,11 @@ An active plan system that triggers high income, where each investor will receiv
 4.Experts Support
 
 A reliable professional team will be able to provide a very fast and responsive waiter within 24 hours.
+
+PAYAMENT PROSES :
+
+BUCKSTAKE COIN MASTERNODES ( BCM )
+
+Your Buy & Sell BCM COIN
+
+CREX24.COM
