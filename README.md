@@ -6,13 +6,17 @@ Cryptocurrency trade is growing rapidly and has expanded to almost every part of
 This makes it difficult for ordinary people to gain access, and there will always be third parties with high costs among traders and markets. The cryptocurrency exchange market has no access restrictions and is very transparent at a very low cost; it is open to every individual, strategy, language, region and country in any part of the world as long as it is connected to the internet.
 
 Consistent Profit
+
 Distribution of Profit 1 - 2% per day that will be paid to investors.
 
 P2p Wallet Coin
+
 You can trade with friends and family with the Coin p2p wallet system.
 
 Big Profits
+
 An active plan system that triggers high income, where each investor will receive the results of their work.
 
 Experts Support
+
 A reliable professional team will be able to provide a very fast and responsive waiter within 24 hours.
